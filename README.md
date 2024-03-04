@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aaayushi1324
-- 👀 I’m interested in coding , and blast it 
+- 👀 I’m interested in create a new code 
 - 🌱 I’m currently learning web developmet , marketing , selling .. 
 - 💞️ I’m looking to collaborate on web development , data analyst ...
 - 📫 How to reach me i give my linkd in profile conect me...
